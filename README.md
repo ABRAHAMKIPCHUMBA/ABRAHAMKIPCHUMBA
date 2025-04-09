@@ -1,3 +1,4 @@
-I graduated from high school last year at ST PATRICKS ITEN.
-I`m currently learning programming
-how to reach me-0769159430
+I`m ABRAHAM KIPCHUMBA
+Currently learning Programming
+Looking forwarad to become great web3 developer
+Reach me through:0769159430;abrahamkipchumba80@gmail.com
